@@ -1,0 +1,4 @@
+massive-archry
+==============
+
+ok really let u know that i dont know who is mojio and other u can daring firwall but need to clean up but i has not getting my verification code from yahoo slipper since was real patriciagillam45@ yahoo.comcom as patriciagillam45 so fact was only know old two pw with 508#invaild mgs but not know what is 8 letters pw stranger from IM also found out was unauthroized access for this and locked me out cause frustrate i did report to my relationship as partners and my manage too since my relationship as partner was on his mointor direction to delivery bypliot stopped in ala hold him &amp;his one team fortwo days suppose to see me on july3 sopliot was order for his vacation and was something wrong so next day on july5 2013 return back home no show here cause denied i did paid for that then second time has been happen by truckman delivery with him and his lawyer for his responsbile mointor to plans to s
